@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computers
 - 🌱 I’m currently learning Web Development and Cyber Security
 - 💞️ I’m looking to collaborate on anyone who is passionate to work with me
-- 📫 How to reach me mohamedfayas916123@gmail.com
+- 📫 How to reach me fajaspariyarath335@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Started coding at 10 and got addicted
 
